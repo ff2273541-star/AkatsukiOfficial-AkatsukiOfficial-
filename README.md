@@ -1,2 +1,0 @@
-# AkatsukiOfficial-AkatsukiOfficial-
-Akatsuki 
